@@ -1,4 +1,4 @@
-# Fireball-Clan-Clothing created by hagertyh (AKA OperationToonUp)
+# Firefighter Clothing Designs created by hagertyh (AKA OperationToonUp)
 
 Multiple clothing Content Packs from Toontown Online in one zip.
 
