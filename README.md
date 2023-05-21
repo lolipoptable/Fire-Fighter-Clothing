@@ -1,6 +1,6 @@
-# Firefighter Clothing Designs created by hagertyh (AKA OperationToonUp)
+# Firefighter Clothing Redesigns created by hagertyh (AKA OperationToonUp)
 
-Multiple clothing Content Packs from Toontown Online in one zip.
+Multiple clothing Content Packs from Toontown Online created by hagertyh in one zip. Original .TTP files can also be viewed on this website: https://firefighterredesigns.webs.com/
 
 # Information
 
